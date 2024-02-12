@@ -1,6 +1,6 @@
 # Mulheres Fodas!
 
-![img](./img/imagem.png)
+![img](./img/imagem.png) (APRIMORAR ESTILIZAR O MAIS BREVE POSSIVEL  )
 
 > A humanidade sempre teve medo de mulheres que voam, sejam elas Bruxas, sejam elas livres.
 
